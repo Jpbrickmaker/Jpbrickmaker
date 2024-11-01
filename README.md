@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Jpbrickmaker
+- 👀 I’m interested in ...
+Using my android tablet instead of a pc to flash other devices.
